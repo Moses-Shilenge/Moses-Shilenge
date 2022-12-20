@@ -11,5 +11,5 @@ Furthermore, I also love sharing knowledge. I am interested in shaping the next 
 - 🤔 I’m looking for a mentor, a person who can help me grow my skill to take on a **CIO** role.
 - 💬 Ask me about anything pretty much. I try my best to master as many things as I can in IT.
 - 📫 How to reach me: on YouTube @iammoshe
-- ⚡ Fun fact: I a an Otaku.
+- ⚡ Fun fact: I am an Otaku.
 
